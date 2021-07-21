@@ -1,4 +1,4 @@
-### Hi there 👋
--Me gusta aprender cosas nuevas
--Actualme estoy estudiando ingles 
--megusta salir a caminar  
+### Hola  👋
+-  Me gusta aprender cosas nuevas.
+-  Actualme estoy estudiando ingles.
+-  Megusta salir a caminar.  
